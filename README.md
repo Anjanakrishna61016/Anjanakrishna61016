@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Anjanakrishna61016
+- 👋 Hi, I’m @Anjanakrishna
 - 🌱 I’m currently learning ...
 
 
